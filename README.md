@@ -46,9 +46,9 @@ and I hope to make a significant impact in these fields.
 - 📫 **Email**:  
   renuka.entc@viit.edu
 - 🌐 **LinkedIn**:  
-  [Arpita's LinkedIn](https://www.linkedin.com/in/renuka)
+  [Arpita's LinkedIn](https://www.linkedin.com/in/arpita44)
 - 💻 **GitHub**:  
-  [Arpita's GitHub](https://github.com/renuka)
+  [Arpita's GitHub](https://github.com/arpita44)
 
 ---
 
